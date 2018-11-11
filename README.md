@@ -1,2 +1,0 @@
-# phantom-direct
-retail store
